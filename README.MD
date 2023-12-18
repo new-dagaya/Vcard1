@@ -17,7 +17,7 @@
 </a>
 
 ### ```𝙽𝙰𝙼𝙴 ```
-<h2>𝗛.𝗞 𝗖𝗵𝗮𝗺𝗶𝘁𝗵 𝗖𝗵𝗮𝘁𝗵𝘂𝗿𝗮𝗻𝗴𝗮 𝗙𝗘𝗥𝗡𝗔𝗡𝗗𝗢
+<h2>𝗛.𝗞 𝗖𝗵𝗮𝗺𝗶𝘁𝗵 𝗖𝗵𝗮𝘁𝗵𝘂𝗿𝗮𝗻𝗴𝗮<h2>
 
 ### ```𝙳𝙰𝚃𝙴 𝚘𝚏 𝙱𝚒𝚛𝚝𝚑 ```
 <h2><b>27/02/2001</h2></b>
@@ -33,7 +33,7 @@
 
 ### ```𝚆𝙷𝙰𝚃𝚂𝙰𝙿𝙿```
  <p align="left">
-<a href="https://wa.me/message/7Z6RMXP3AEQUA1"><img align="center" src="https://i.imgur.com/HWQYt49.png" alt="My Whatsapp" height="100" width="100" /></a>
+<a href="http://wa.me/+94769228163"><img align="center" src="https://i.imgur.com/HWQYt49.png" alt="My Whatsapp" height="100" width="100" /></a>
    
  ### ```𝚃𝙴𝙻𝙴𝙶𝚁𝙰𝙼```
  <p align="left">
@@ -56,8 +56,8 @@
 <a href="https://drive.google.com/file/d/1CGadQguBWtObEb0EnT9bk2A2rqrimdu6/view?usp=drivesdk" download="w3logo"><img align="center" src="https://i.imgur.com/l8C0Jey.jpeg" alt="My Whatsapp" height="100" width="300" /></a>
 
 ### ```𝙼𝚈 𝙶𝚁𝙾𝚄𝙿𝚂```
-+ [`𝙹𝙾𝙸𝙽 𝚂𝚃𝙰𝚃𝚄𝚂 𝙶𝚁𝙾𝚄𝙿`](https://chat.whatsapp.com/J3ncUnOkECc7we5k8x3qzy) 
-+ [`𝙹𝙾𝙸𝙽 𝙱𝙾𝚃 𝙶𝚁𝙾𝚄𝙿`](https://chat.whatsapp.com/JYoFqGLazzWF6wiFrMhgO2)
++ [`𝙹𝙾𝙸𝙽 𝚂𝚃𝙰𝚃𝚄𝚂 𝙶𝚁𝙾𝚄𝙿`](https://chat.whatsapp.com/HiYUrkoghkF9qyfO5hoUdF) 
++ [`𝙹𝙾𝙸𝙽 𝙱𝙾𝚃 𝙶𝚁𝙾𝚄𝙿`](https://chat.whatsapp.com/GuApy8xzqFe2FOOBjs3ufK)
 
 <div align="center">
 <a href="https://i.imgur.com/2ZP1lzk.jpeg" download>
